@@ -1,2 +1,2 @@
 # jai1
-first repozitories
+first repozitories by prashant tiwari
